@@ -1,1 +1,2 @@
 # hardware
+To get [skateboard accessories and hardware](https://cryptrider.com/) for children, start by visiting local skate shops where experts can recommend age-appropriate and safe options. You can also explore reputable online stores like Zumiez or Skate Warehouse for a variety of kid-friendly accessories, including smaller trucks and wheels. Don’t forget essential safety gear like helmets, knee pads, and wrist guards to ensure their protection. Focus on lightweight and customizable options to make skateboarding enjoyable and easier for young beginners.
